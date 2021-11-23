@@ -1,1 +1,0 @@
-# Hampersenak2ejmnxq
